@@ -3,7 +3,7 @@
 
 
 
-
+<div align="center">
 
 ˚₊‧꒰ა [Straw](https://zouweemama.straw.page)  [Guns](https://guns.lol/zou_dieyiyi) [Prns](https://en.pronouns.page/@zouweemama)
  ໒꒱ ‧₊˚
@@ -29,16 +29,16 @@
 
 
 
+<div align="center">
 
-
-                             ꒰ঌ(˶ˆᗜˆ˵)໒꒱
-
-
-
+꒰ঌ(˶ˆᗜˆ˵)໒꒱
 
 
 
 
+
+
+<div align="center">
 
 <img width="99" height="55" alt="tumblr_f81a7e5148ec37885587a6a3f33716fc_a3fa696c_100" src="https://github.com/user-attachments/assets/cbb0edb6-11de-4834-98e5-dcffe1853690" />
 <img width="105" height="62" alt="tumblr_58370391125d12796eca884a25ac1149_d5b436b5_250" src="https://github.com/user-attachments/assets/a746f079-e35a-4983-99fc-c1e276f71040" />
